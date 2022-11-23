@@ -1,1 +1,1 @@
-hello everyone
+Hello everyone, and welcome to my blog!
